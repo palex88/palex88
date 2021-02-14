@@ -1,1 +1,1 @@
-Your Pal, Alex.
+Your pal, Alex.
